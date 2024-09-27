@@ -1,4 +1,3 @@
-![forGit](https://github.com/user-attachments/assets/e17b2c80-b45c-43f2-9939-4fabdbfc6a91)
 
 
 # 🙋🏻‍♂️ About Me:
